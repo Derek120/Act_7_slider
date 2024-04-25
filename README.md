@@ -6,3 +6,5 @@
 ![image](https://github.com/Derek120/Act_7_slider/assets/159184890/19c5729a-754e-4dfa-b487-6e82c430b1e6)
 ![image](https://github.com/Derek120/Act_7_slider/assets/159184890/464313f7-469a-454f-9721-fbd5874c878e)
 ![image](https://github.com/Derek120/Act_7_slider/assets/159184890/b94cceed-b3a3-487b-aad8-f3e9b5a1d2d9)
+
+https://youtu.be/AsjRFfzEJ4g?si=Wt5d3BVwGZtMlwx_
